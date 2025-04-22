@@ -10,5 +10,6 @@
 
 With all of this said, my presentation is complete for now, because I hope to continue growing in my career and personal development. In this brand-new world of challenges and people to discover, I’d like to keep these words I'm saying today, to remember them in the future. When I look back, I want to see a version of myself who was hopeful and excited for a bright tomorrow! 
 
+![pelon](https://github.com/user-attachments/assets/05cea440-f8c5-4a47-8535-265059233a47)
 
-![Arknights full 3922870](https://github.com/user-attachments/assets/8178d77a-fc2c-498e-8b11-32ff01b99f5a)
+
