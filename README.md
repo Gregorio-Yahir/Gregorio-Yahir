@@ -11,4 +11,5 @@
 With all of this said, my presentation is complete for now, because I hope to continue growing in my career and personal development. In this brand-new world of challenges and people to discover, I’d like to keep these words I'm saying today, to remember them in the future. When I look back, I want to see a version of myself who was hopeful and excited for a bright tomorrow! 
 
 
-![personal](https://github.com/user-attachments/assets/f5aa9a7a-8b7a-40a7-9f8c-a1d536cb143c)
+![image](https://github.com/user-attachments/assets/d2043938-888b-4591-b3c8-204ca18de9b5)
+
